@@ -1,2 +1,0 @@
-# PREDELAI
-modelo de delitos
